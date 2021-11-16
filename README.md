@@ -23,6 +23,5 @@ why quantum...?....?..xD...what is xD...?...are we ready?...can i make my megazo
 
 32bit?64bits?...why super computers...why creators?...why people?...
 
-
-
+why security? why sports?...
 
