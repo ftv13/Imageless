@@ -30,9 +30,11 @@ Se debe de reconocer a las entidades participativas en dichas nuevas aportacione
 Al igual que los inversores(No inhuman amounts).
 Se debe motivar todas las ciencias a los nuevos medios tecnológicos actuales transparentes para su crecimiento (medicina, fisica, matematicas, artes, pensamiento critico...).
 Se debe motivar con incentivos(donaciones) las tecnologías obtenidas de código abierto o creaciones(aportaciones) de personas.
-….
-….
-….
-….
+
+
+
+
+
+earthlyexperience - real world app - reingenialize - upgrade hardware for today's world - bring all the information. open for new.
 
 Creatividad -> crecimeinto?.
