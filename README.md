@@ -35,6 +35,18 @@ Se debe motivar con incentivos(donaciones) las tecnologías obtenidas de código
 
 
 
-earthlyexperience - real world app - reingenialize - upgrade hardware for today's world - bring all the information. open for new.
+earthlyexperience - real world app - reingenialize 
+
+
+
+organization
+---->try to make a community ai available options of abtraction & inmutable community house vision & community house todofine pass
+---->test for friendly UI/UX Agenda/TodoList micro ai app soporter, in this case just kind of human & machin standart micro task (create,write,...in app environment Monky miner harmless ecosystem, no other level,access or else ),
+when pass ---->
+---> Personal Agenda, for selfs, private personal predictions(+) & suggestions(+), personal open(source) code & documentation & notes, when pass for community data sharing, talking about better habits.(Alarm,Calendar,Agenda, one time email alerts of todo task or time, interactive, space hardware(past,now) friendy, simple micro retrofirst-asistence).
+
+
+
+- upgrade hardware for today's world - bring all the information. open for new.
 
 Creatividad -> crecimeinto?.
